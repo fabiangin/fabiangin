@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fabiangin
 - 👀 I’m interested in ...la tecnologia
-- 🌱 I’m currently learning ... a programar
+- 🌱 I’m currently learning ... 
 
 - 💞️ I’m looking to collaborate on  l o que pueda
 - 📫 How to reach me ... fabigonzalo2@gmail.com
